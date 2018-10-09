@@ -13,5 +13,8 @@ The character's picture and animation are extracted from the original mod materi
 ***
 ## 技能介绍（待补全）
 ### 不死者之王    安兹乌尔恭   OverLord Ainz
+https://steamcommunity.com/sharedfiles/filedetails/?id=1428433085
 ### 传奇狩魔猎人   杰洛特   Geralt of Rivia
+https://steamcommunity.com/sharedfiles/filedetails/?id=967618008
 ### 日本浪人  剑客   Ronin of Japan
+https://steamcommunity.com/sharedfiles/filedetails/?id=942851186
